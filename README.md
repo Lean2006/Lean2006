@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lean2006. I'am 15 years old, i am a student and i am from Peru, exactly of Trujillo.
+- 👀 I’m interested in learn informatic computing, game programming, personal development and administration.
+- 🌱 I’m currently in high school and prepatory.
+- 📫 I'm not good with the english but i try to keep learning jeje.
